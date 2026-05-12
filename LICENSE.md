@@ -1,4 +1,4 @@
-#  
+#  Experience anime card collection like never before with anime card collection rare Scripts, the #1 Script. Includes esp and auto-sell for unbeatable
 
 
 
